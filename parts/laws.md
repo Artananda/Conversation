@@ -29,10 +29,10 @@ Yep, I have been living in Switzerland
 > They have direct democracy, but they also have got the media. So the people often vote, what main stream media is telling them.
 
 So how can we do it?
-> You are a software developer. Lets create an app for this. Only people who are using this app will know about these rules. So main stream media does'nt know about it and therefore they will not interfere. At least not in the beginning.
+> You are a software developer. Let's create an app for this. Only people who are using this app will know about these rules. So main stream media doesn't know about it and therefore they will not interfere. At least not in the beginning.
 
 How can we get rid of main stream media?
 > Don't use it
 
 But they will manipulate other people?
-> That does'nt matter at all. When you have got 1.000 people who signed these new rules they are activated. They are parallel to their rules. Try to also get lawyers involved. They will know how to deal with that and can help your small circle. The other people can still have their set of rules and you have yours.
+> That doesn't matter at all. When you have got 1.000 people who signed these new rules they are activated. They are parallel to their rules. Try to also get lawyers involved. They will know how to deal with that and can help your small circle. The other people can still have their set of rules and you have yours.

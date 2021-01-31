@@ -17,16 +17,16 @@ Haha, very funny.
 Hm...I like to have sex.
 > Yeah, I understand... How can you give that to the world?
 
-Hm...I already give Tantra Massages, pratice Sexological Bodywork and I am giving workshops for a special tantric massage which I have kinda developed.
+Hm...I already give Tantra Massages, practice Sexological Bodywork and I am giving workshops for a special tantric massage which I have kinda developed.
 > So you are on your way.
 
 Not really...I like to give these treatments but almost nobody is interested in receiving it.
 > Have you got a studio where you can offer it?
 
-No yet. I once had a studio on the west coast of Denmark...but only a few people came over to that place. Some people drove more than 100 km.
+No yet, I once had a studio on the West coast of Denmark...but only a few people came over to that place. Some people drove more than 100 km.
 > Wow, 100 km...than they were more than just interested in your work.
 
-My wife drove about 1.000 km to get a traetment. We are separted since a few years.
+My wife drove about 1.000 km to get a treatment. We are separated since a few years.
 > I see. Did she liked it? Of course...so what if you settle somewhere, where you can attract more people? What if you settle somewhere you also can do your hobbies.
 
 Yeah...there is a town in Portugal where I can also do kitesurfing close to. And the houses are very cheap compared to my hometown.
@@ -41,7 +41,7 @@ I like to program useful software.
 Yeah...I was already thinking about that. I wanted to create something like that in Luzern already.
 > What has distracted you?
 
-My life...I was in a toxic marriage that days. And than I have escaped to Denmark.
+My life...I was in a toxic marriage that days. And then I have escaped to Denmark.
 > So think also about to create such a place in Luzern. Where is your hometown?
 
 In Hamburg
@@ -50,7 +50,7 @@ In Hamburg
 Yes, but...at that time I was already without money.
 > Ah, I see. And you don't know where you might get money from?
 
-Hm, I know how to make money. Was have been a millionare before.
+Hm, I know how to make money. Was have been a millionaire before.
 > So what's the point?
 
 I have stepped out of the system.

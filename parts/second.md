@@ -19,7 +19,7 @@ So, in this Andy Weir was correct in his book *The Egg*?
 Yeah. That doesn't really matter I feel.
 > Yep
 
-If we believe in his book, than we already know, that we should not hurt someone else, because we might hit ourself.
+If we believe in his book, then we already know, that we should not hurt someone else, because we might hit ourselves.
 > Yeah, that's it.
 
 Is this also the reason, that I am writing this book? That we can help other souls to find their way?
@@ -31,7 +31,7 @@ How can we stop violence on earth?
 But we are living with these lies since thousands of years?
 > Good time to start
 
-But then the whole ecosystem will collapse. The governments, the laywers, the judges, big pharma, advertising, televion they all will die out.
+But then the whole ecosystem will collapse. The governments, the lawyers, the judges, big pharma, advertising, television they all will die out.
 > Yeah, its about time
 
 Where should we start then?

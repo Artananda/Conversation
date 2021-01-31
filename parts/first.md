@@ -10,8 +10,8 @@ So I will communicate in English with you.
 > Thank you
 
 Some facts about this very special day.
-It is Thursday the 28th of January in 2021. I have died excatly 7 years ago. Today is also full moon. The wulfmoon. I only have got 6,- € left for food. The tank of my car is empty so I cannot drive. 
-Yesterday was the last day I had internet. I don't know why I am offline, but that does'nt matter. Now I have time to write this book for me and for you.
+It is Thursday the 28th of January in 2021. I have died exactly 7 years ago. Today is also full moon. The wulfmoon. I only have got 6,- € left for food. The tank of my car is empty so I cannot drive. 
+Yesterday was the last day I had internet. I don't know why I am offline, but that doesn't matter. Now I have time to write this book for me and for you.
 
 Sorry bro, that I let you wait.
 > Its ok, take your time.
@@ -23,7 +23,7 @@ Who are you?
 > I am your father.
 
 You mean, you are my physical father?
-> No. I am god.
+> No, I am god.
 
 Father is it true, that we will become gods one day?
 > Yes
@@ -71,22 +71,22 @@ Did I do something wrong that I have to live forever?
 > Are you kidding me?
 
 But our bodies get older.
-> Bullshit. I gave you a body that already stopped to get older. You already know about the 7 years where all cells regenerate. So your body is not older than 7 years. Only your mind is getting, lets say wiser.
+> Bullshit. I gave you a body that already stopped to get older. You already know about the 7 years where all cells regenerate. So your body is not older than 7 years. Only your mind is getting, let's say wiser.
 
 So, all of us stay young?
 > Not that. Some will get older and die.
 
 Why are they dying?
-> Because they don't believe in imortality.
+> Because they don't believe in immortality.
 
 Can I help them?
-> Why do you want to. They will wake up on their own one day, like you did.
+> Why do you want to? They will wake up on their own one day, like you did.
 
 But I had help from other people like Neal.
 > You only helped yourself. The others don't read this book, or they read it, but didn't get it.
 
 Sorry that I let you wait again. (I added something on the top of this book)
-> Its ok. Time doesn't really exist.
+> It’s ok. Time doesn't really exist.
 
 So, what is time?
 > Time is a construct of you-man-being. It has been used to enslave the people.
@@ -107,10 +107,10 @@ I see. But I have been told to do so.
 > Yep...everybody else who is part of the enslavement has been told to do so.
 
 Where does this start?
-> Many, many, many years ago. You tried to cultivate food and you used land for that. Some hungry men came and eat from your food. So you start to fight against them. You then build a fence around the land. You also imprisened your beloved wife, because you don't wanted any other men to make love to her and make her pregnant, because you don't wanted to feed children from someone else.
+> Many, many, many years ago. You tried to cultivate food and you used land for that. Some hungry men came and eat from your food. So you start to fight against them. You then build a fence around the land. You also imprisoned your beloved wife, because you don't wanted any other men to make love to her and make her pregnant, because you don't wanted to feed children from someone else.
 
 My gosh, I heard about that before from another book.
-> Yes, you or lets say he already wrote the book, but not everybody read it. Even you did not read the whole book.
+> Yes, you or let's say he already wrote the book, but not everybody read it. Even you did not read the whole book.
 
 So how can we stop slavery?
 > Just wake up
@@ -134,7 +134,7 @@ All human beings are me?
 > No, thats not true
 
 Do I remember myself if I meet myself?
-> Kidding?...you already met yourself several times. Do you remember all these lovely woman you were with? All your friends... Everybody you are interacting with on a physical level. But there are a few exceptions.
+> Kidding?...You already met yourself several times. Do you remember all these lovely woman you were with? All your friends... Everybody you are interacting with on a physical level. But there are a few exceptions.
 
 What exceptions?
 > Some (wo)men you don't feel love to. They just interact with you to exchange a bit of knowledge. Some of them are the so called statists. Some are there to show you some boundaries. Some of them give you a challenge.

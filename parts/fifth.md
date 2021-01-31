@@ -5,13 +5,13 @@ After I found a solution to be able to create a nice life for myself it's now yo
 Ask yourself or ask your higher self these questions from the previous chapter and go for it.  
 
 Now that I have found my soul plan, what also needs to be transformed?
-> The whole economy can be transformed. Some people might still think that it's still a good idea to hort things. Would you like to hort apples for example?
+> The whole economy can be transformed. Some people might still think that it's still a good idea to hoard things. Would you like to hoard apples for example?
 
-Of course not. The will become bad after a while. I would rather share them with my friends and neighbors.
+Of course not. They will become bad after a while. I would rather share them with my friends and neighbors.
 > That's what I like to hear.
 
-We have to eat them immidiatly and they will grow again on it's own.
-> Exactly...but some people still hort money. They don't know that they are living in abundance. 
+We have to eat them immediately and they will grow again on it's own.
+> Exactly...but some people still hoard money. They don't know that they are living in abundance. 
 
 Yeah, how can we deal with this?
 > Don't give them their money. Don't buy their products. Don't use their services and don't borrow money from them. Also don't work so much so that you don't earn so much money and then you don't have to pay that much taxes.
@@ -26,9 +26,9 @@ You mean we can create a parallel economy in a small circle?
 > The circle can also be bigger. Your associating is able to spread across the globe. In these circles one may bake bread. Another one creates furniture and another one is giving massages. All for free. And if you are not writing bills you are not getting money and so you don't have to pay taxes.
 
 Wow, that sounds like a big thing.
-> Not big...but easy. How much time do you waist for writing invoices? How much time do you spent for declaring taxes? Now you have got all this time to have freetime.
+> Not big...but easy. How much time do you waist for writing invoices? How much time do you spent for declaring taxes? Now you have got all this time to have free-time.
 
-And the freetime I can use to be creative and think about other ideas how to give something to my community.
+And the free-time I can use to be creative and think about other ideas how to give something to my community.
 > Yep
 
 I am going to dream about this right now. CU later.
